@@ -1,0 +1,1 @@
+baca ini ya  yaya
